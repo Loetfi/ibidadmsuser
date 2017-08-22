@@ -1,0 +1,1 @@
+# kami adalah jajal
